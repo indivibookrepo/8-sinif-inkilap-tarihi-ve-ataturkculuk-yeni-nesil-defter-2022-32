@@ -1,0 +1,1 @@
+# 8-sinif-inkilap-tarihi-ve-ataturkculuk-yeni-nesil-defter-2022-32
